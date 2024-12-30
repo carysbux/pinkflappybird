@@ -1,1 +1,1 @@
-I followed parts of a youtube tutorial, will add more soom
+Hello! Enjoy pink flying bird. I will add more soom
